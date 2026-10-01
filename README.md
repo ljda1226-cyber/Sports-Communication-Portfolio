@@ -4,6 +4,10 @@ Welcome to my sports communications portfolio. I am an LSU graduate with a B.S. 
 
 My experience includes media relations, sports writing, game and match notes, player biographies, statistics, social media, digital content, and postseason coverage. I am currently pursuing my M.S. in Leadership and Human Resource Development through LSU.
 
+## Resume
+
+[View My Resume](Luke_Ashley_Resume_Final.pdf)
+
 ---
 
 ## Featured Work
