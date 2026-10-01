@@ -6,7 +6,7 @@ My experience includes media relations, sports writing, game and match notes, pl
 
 ## Resume
 
-[View My Resume](Luke_Ashley_Resume_Final.pdf)
+[View My Resume](Luke_Ashley_Resume.pdf)
 
 ---
 
